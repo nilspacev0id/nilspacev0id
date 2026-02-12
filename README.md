@@ -7,6 +7,6 @@
 welcome ,, people mainly know  me az riu, but riu is a shortened name of sirius.
 feel free to call me any namez (except if it actually makes me uncomfortable)
 
-i block freely. dni darkshipper/ <h1>SOME</h1> proshippers. (I still respect you all even if you're on my dni list.)
+i block freely. dni darkshipper/ <h3>SOME</h1> proshippers. (I still respect you all even if you're on my dni list.)
 
 ok bye alzo maybe more in my prns page or strawpage.
