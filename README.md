@@ -7,6 +7,8 @@
 welcome ,, people mainly know  me az riu, but riu is a shortened name of sirius.
 feel free to call me any namez (except if it actually makes me uncomfortable)
 
+<h2>i can be very akward to interact with,, since im the nervous/shy typa person ,, apologies for the second time if i talk things randomly, etc.</h2>
+
 i heavily fictkin sean becauze i relate to him. I am under the trans umbrella,, sometimes i get uncomfortable if somebody calls me a girl (both digital and rl)
 
 i am dealing with nervousness (it can be severe , idk), depression (it has been going for years, no treatment), severe fear of being judged, uncontrolled hormones (i get too freaky a LOT, please understand this :[ ), etc.
