@@ -38,7 +38,7 @@ _stares intensely into ur soul_
 1. homophobic, transphobic, islamophobic, etc.
 2. sexualizes minors, m.a.p, joking about r4pes, or any stuff related to those.
 3. boundary/personal space breaker
-4. darkshippers, some proshippers, dark comshipper.
+4. darkshippers, *some* proshippers, *dark* comshipper.
 
 ▀▄▀▄▀▄ ℬorder 2nd `✦︎
 
