@@ -17,12 +17,15 @@ feel free to call me any namez (except if it actually makes me uncomfortable)
 
 
 
-bro
+
 
 
 <img width="110" height="257" alt="chibi_sean_seildirectory_roblox_Sean-removebg-preview" src="https://github.com/user-attachments/assets/344bc6aa-5bc6-4187-ab0e-bea5f5a0ff1a" />
 
-wowow sean
+_stares intensely into ur soul_
+
+
+
 
 
 
