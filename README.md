@@ -7,7 +7,7 @@
 welcome ,, people mainly know  me az riu, but riu is a shortened name of sirius.
 feel free to call me any namez (except if it actually makes me uncomfortable)
 
-<h2>i can be very akward to interact with,, since im the nervous/shy typa person ,, apologies for the second time if i talk things randomly, etc.</h2>
+i can be very akward to interact with,, since im the nervous/shy typa person ,, apologies for the second time if i talk things randomly, etc.
 
 i am often impulsive, and
 
