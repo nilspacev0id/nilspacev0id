@@ -9,11 +9,11 @@ feel free to call me any namez (except if it actually makes me uncomfortable)
 
 i can be very akward to interact with,, since im the nervous/shy typa person ,, apologies for the second time if i talk things randomly, etc.
 
-i am often impulsive, and
+i am often impulsive,
 
 i heavily fictkin sean becauze i relate to him. I am under the trans umbrella,, sometimes i get uncomfortable if somebody calls me a girl (both digital and rl)
 
-i am dealing with nervousness (it can be severe , idk), depression (it has been going for years, no treatment), severe fear of being judged, uncontrolled hormones (i get too freaky a LOT, please understand this :[ ), etc.
+i am dealing with nervousness, depression, severe fear of being judged, uncontrolled hormones (i get too freaky a LOT, please understand this :[ ), etc.
 
 i can be avoidant or distant,, and i isolates myself aalot ..         i avoid conflicts at all cost, it makes me overwhelmed and i will immediately leave, (+ offline for hours or days)
 
