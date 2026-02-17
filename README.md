@@ -32,8 +32,11 @@ _stares intensely into ur soul_
 
 │ ㅤ♡
 
+‎‎‎ 
+
 ‎ 
-ᛝ i am actually scared when i talk with people and very nervous plus cautious / careful , i do not want to offend or worse. 
+‎
+ᛝ i am actually scared when i (try to) talk with people and very nervous plus cautious / careful , i do not want to offend or worse. 
 
 ᛝ i can be very akward to interact with,, since im the nervous/shy typa person ,, apologies for the second time if i talk things randomly, etc. ꨄ︎
 
@@ -47,6 +50,7 @@ _stares intensely into ur soul_
 3. boundary/personal space breaker
 4. darkshippers, *some* proshippers, *dark* comshipper.
 
+‎ 
 ▀▄▀▄▀▄ ℬorder 2nd `✦︎
 
 |
