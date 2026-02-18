@@ -6,10 +6,11 @@
 <h4>ABOUT ME :</h4> (˶ᵔ ᵕ ᵔ˶)
 ⌞ ⌝ welcome ,, people mainly know  me az riu, but riu is a shortened name of sirius. ༝༚༝༚ ˎˊ˗
 feel free to call me any namez (except if it actually makes me uncomfortable) ༝༚༝༚ ˎˊ˗
+   
 this user is the type of people that is literally "idm" for almost everything bruh🙄 (( zo borign dud)))))
 ‎ 
-
-‎ 
+.
+   
 ‎ 
 ‎   @ ɑׁׅ֮sk me / say something ~ : https://ngl.link/riuupecintanasgor.no.1
 ‎ 
@@ -64,5 +65,3 @@ _stares intensely into ur soul_
 
 
 
-
-        hheyy!! iM FROMM INDONESIA
