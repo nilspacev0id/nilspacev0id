@@ -64,6 +64,6 @@ _stares intensely into ur soul_
 ᛝ ok bye alzo maybe more in my prns page or strawpage. ˗ˏˋ ♡ ˎˊ˗
 
 
-   on almost every socials, i am nilspace.v0id / nilspacev0id !  (except roblox ..)
+   on *almost* every socials, i am nilspace.v0id / nilspacev0id !  
 
 
