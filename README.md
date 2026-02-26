@@ -1,5 +1,7 @@
 <img width="447" height="559" alt="sean_graphic-removebg-preview" src="https://github.com/user-attachments/assets/f11d3dca-300b-408b-90a8-5d57404a8ec8" />
 <h1>THE BODY YOU LEFT BEHIND.</h1>
+HAPPY BIRTHDAY MY BELOVED!!
+.
 
 <h4>ABOUT ME :</h4> (˶ᵔ ᵕ ᵔ˶)
 ⌞ ⌝ welcome ,, people mainly know  me az riu, but riu is a shortened name of sirius. ༝༚༝༚ ˎˊ˗
