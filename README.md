@@ -26,7 +26,11 @@ LOADING
 6. I don't understand easily, it can take days for me to realize.
 ‎ 
 
-‎ ══════ ⓘ Mentions of sensitive topic
+‎ ══════ ⓘ Mentions of sensitive 
+
+‎ 
+‎ 
+‎  ** Just click prns page or strawpage please **
 ‎ <h3>Please DNI:</h3>
 1. Boundary/personal space invader.
 2. problematic people (ex : darkshippers, z00, p3dophiles, etc.)
