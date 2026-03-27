@@ -34,9 +34,11 @@ LOADING
 ‎ <h3>Please DNI:</h3>
 1. Boundary/personal space invader.
 2. problematic people (ex : darkshippers, z00, p3dophiles, etc.)
-3. Transphobes, homophobes, islamophobic.
-4. IF you joke about serious/racism/weird/sensitive topics (such as suicid3, s/h, racism something related to that. ITS NOT A JOKE ANYMORE)
-   ‎ 
+3. Transphobes, homophobes, islamophobic, etc.
+4. IF you joke about serious/racism/weird/sensitive topics (such as suicid3, s/h, racism something related to that. )
+
+‎
+   ‎
 
 ‎‎ ═══════ END of AUDIO ᯓ
 
