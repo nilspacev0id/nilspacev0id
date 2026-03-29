@@ -35,7 +35,7 @@ LOADING
 1. Boundary/personal space invader.
 2. problematic people (ex : darkshippers, z00, p3dophiles, etc.)
 3. Transphobes, homophobes, islamophobic, etc.
-4. IF you joke about serious/racism/weird/sensitive topics (such as suicid3, s/h, racism something related to that. )
+Thin Ice : if you joke about sometimes that shouldn't be joked.
 
 ‎
    ‎
