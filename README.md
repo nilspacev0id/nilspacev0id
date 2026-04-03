@@ -34,7 +34,7 @@ LOADING
 ‎ <h3>Please DNI:</h3>
 1. Boundary/personal space invader.
 2. problematic people (ex : darkshippers, z00, p3dophiles, etc.)
-3. Transphobes, homophobes, islamophobic, etc.
+3. Transphobes, homophobes (unless we are close/i know you, but iwc), islamophobic, etc.
 |||Thin Ice : if you joke about something that shouldn't be joked. (in general)
 
 ‎
