@@ -1,6 +1,6 @@
 <img width="145" height="155" alt="___38_-removebg-preview" src="https://github.com/user-attachments/assets/05716ddb-7fbc-4eca-9b7c-15afeedce3d7" />  <h2>""ᵢ ₐₘ ᵣₑₐₗₗy ₛₒᵣᵣy""</h2>
 
-‎ <img width="500" height="600" alt="Untitled79_20260226201825" src="https://github.com/user-attachments/assets/44913991-e2bf-4f11-8b32-a9684983da6c"/>‎  <img width="300" height="300" alt="𝓟oisonussexx_on_ig_-removebg-preview" src="https://github.com/user-attachments/assets/7ac37cd2-2cf2-4d84-90bb-0b23491e6f67" /> <h6>(hoesntly i did make sean armless on purpose hahh)</h6>
+‎ <img width="500" height="600" alt="Untitled79_20260226201825" src="https://github.com/user-attachments/assets/44913991-e2bf-4f11-8b32-a9684983da6c"/>‎  <img width="300" height="300" alt="𝓟oisonussexx_on_ig_-removebg-preview" src="https://github.com/user-attachments/assets/7ac37cd2-2cf2-4d84-90bb-0b23491e6f67" /> <h6>(honestly i did make sean armless on purpose hahh)</h6>
 
 INSERTING TAPE ..
 LOADING
